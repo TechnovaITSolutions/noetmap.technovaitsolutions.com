@@ -1,1 +1,0 @@
-# noetmap.technovaitsolutions.com
